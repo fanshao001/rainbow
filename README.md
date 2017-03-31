@@ -1,6 +1,0 @@
-# rainbow
-
-
-
-
-i just try...
